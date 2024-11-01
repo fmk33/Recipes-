@@ -2,6 +2,6 @@
 ## Ingredients
 *pumplin
 *sugar
-*crust
+*cinnamon
 *eggs
 ## Instructions
